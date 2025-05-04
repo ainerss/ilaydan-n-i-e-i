@@ -1,1 +1,0 @@
-# ilaydan-n-i-e-i
